@@ -6,5 +6,13 @@
 
 *~~  Adopting more effective problem-solving strategies~~
 * Submit an evaluation for development
+
+## iwill remember 
+- love what are you doing
+
+ - keep chalenging
+ 
+ - dont stop
+ 
 ### my resourse"https://hbrarabic.com/"
 > Abdalrahman alhmouz
